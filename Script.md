@@ -21,6 +21,7 @@ Normally Ed would leave well enough alone, but he was worried that an animal mig
 He stuck his head in the door, the color of the foliage was intense greens, browns and chartreuse, he called out for a zoo keeper but got no response.
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
+He called out for the zookeeper once more but heard nothing but silence.
 
 Ed met the Unicorn King who granted him magic powers.
 He then tested his powers on the unicorn and was able to turn him into a fly, and then turned him into a Lion.
